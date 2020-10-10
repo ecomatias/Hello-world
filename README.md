@@ -1,3 +1,5 @@
-# Hello-world
+# Hello-Brand-New-World!!!
 about learning in github!
 well, that is my first try !
+I'm just coming here again to be sure that I lear correcctly from my two first tries...
+and also to delete somethig, for legal reasons, you know...
